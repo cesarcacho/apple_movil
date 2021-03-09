@@ -1,2 +1,2 @@
-Réplpica de web de apple en veersión móvil
+Réplica de web de apple en veersión móvil
 
